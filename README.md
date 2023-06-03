@@ -1,1 +1,1 @@
-ok
+I am a hero
